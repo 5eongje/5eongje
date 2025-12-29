@@ -1,16 +1,18 @@
-## Hi there 👋
 
-<!--
-**5eongje/5eongje** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  <img width="700" height="500" src="https://github.com/user-attachments/assets/80ee140c-f0ef-4ad4-8f53-cff343f402b8">
+</p>
 
-Here are some ideas to get you started:
+<div align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ⟢ㅤㅤ𝐢 want things to be [𝐛](https://www.youtube.com/watch?v=gUPGLYYT4bc)eautiful.ㅤㅤꔫ
+
+
+
+<div align="center">
+
+  ⩄ㅤ[ma](https://github.com/toemuncher3000)inㅤ★ㅤ[ata](https://skyrus.atabook.org/)bookㅤ★ㅤ[prns](https://pronouns.cc/@ji9stars)ㅤ★ㅤ[2nd](https://github.com/ivancest) mainㅤ︶꒦
+
+
+
+
