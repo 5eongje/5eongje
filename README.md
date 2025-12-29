@@ -4,15 +4,3 @@
 </p>
 
 <div align="center">
-
-  ⟢ㅤㅤ𝐢 want things to be [𝐛](https://www.youtube.com/watch?v=gUPGLYYT4bc)eautiful.ㅤㅤꔫ
-
-
-
-<div align="center">
-
-  ⩄ㅤ[ma](https://github.com/toemuncher3000)inㅤ★ㅤ[ata](https://skyrus.atabook.org/)bookㅤ★ㅤ[prns](https://pronouns.cc/@ji9stars)ㅤ★ㅤ[2nd](https://github.com/SKY-RUS) mainㅤ︶꒦
-
-
-
-
